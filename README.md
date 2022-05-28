@@ -40,5 +40,10 @@ HOW TO WORK :
   
   
   THATS IT <3
+              
+              
+              -------------------- NOTE ----------------------------------
+THIS PROJECT IS STILL UNDERWOKING AND WILL BE UPDATED FREQUENTLY AND IT'S NOT THE lAST VERSION OF IT 
+THIS IS JUST A DEMO
   
   
